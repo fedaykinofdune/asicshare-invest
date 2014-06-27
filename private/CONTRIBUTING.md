@@ -1,0 +1,1 @@
+Contributions are currently locked.  Please contact xgrep or roxare on /r/asicgroupbuy.
